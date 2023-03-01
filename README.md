@@ -1,6 +1,0 @@
-"# Manhattan---Coffee-House" 
-"# Manhattan---Coffee-House" 
-"# Manhattan---Coffee-House" 
-"# Manhattan---Coffee-House" 
-"# Manhattan---Coffee-House" 
-"# Manhattan---Coffee-House" 
